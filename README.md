@@ -1,1 +1,0 @@
-# leadership_Course_Gpts
